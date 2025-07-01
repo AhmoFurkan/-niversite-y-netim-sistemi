@@ -1,1 +1,1 @@
-# -niversite-y-netim-sistemi
+# -niversite-y-netim-sistemi![Uploading preview.svg…]()
